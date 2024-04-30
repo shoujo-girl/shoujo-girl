@@ -1,4 +1,4 @@
-### Hi there 👋
+### HAIII im eme but just call me em if u want to 
 
 <!--
 **shoujo-girl/shoujo-girl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
